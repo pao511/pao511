@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pao511
-- 👀 I’m interested in spanis
+- 👀 I’m interested in spanish
 - 🌱 I’m currently learning Oroject Managment
 - 💞️ I’m looking to collaborate on Virtual Support
 - 📫 How to reach me paorlkl@live.com
